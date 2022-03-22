@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @DoctorNM
+- 👀 I’m interested in changing the world for the better: one step at a time. Stop climate change and poverty!!
+- 🌱 I’m currently learning how to code better. MY coding skills are "scratch" level currently.
+- 💞️ I’m looking to collaborate on a writing project with my friends!
